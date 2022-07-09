@@ -14,3 +14,7 @@ Note: These are just skins I use, I did not make most of them
 
 # [MonkoEdit](https://cdn.discordapp.com/attachments/972968876713320448/995198493557801041/MonkoEdit.osk)
 ![](https://i.imgur.com/6RpAgPr.png)
+
+
+# [-         《ciru》 MonkoEdit](https://cdn.discordapp.com/attachments/972968876713320448/995212980700590120/-_ciru_MonkoEdit.osk)
+![](https://i.imgur.com/9BFULZn.jpeg)
