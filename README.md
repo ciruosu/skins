@@ -5,6 +5,10 @@ Note: These are just skins I use, I did not make most of them
 ![](https://i.imgur.com/A7i9w9c.jpeg)
 
 
+# [Aristia(Edit)+Trail](https://cdn.discordapp.com/attachments/972968876713320448/995382102298218658/AristiaEdittrail.osk)
+![](https://i.imgur.com/BFahCcP.jpeg)
+
+
 # [-         《ciru》 MonkoEdit](https://cdn.discordapp.com/attachments/972968876713320448/995212980700590120/-_ciru_MonkoEdit.osk)
 ![](https://i.imgur.com/9BFULZn.jpeg)
 
